@@ -1,1 +1,1 @@
-# jj-app
+# coming-soon-page
